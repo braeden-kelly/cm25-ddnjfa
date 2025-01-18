@@ -1,0 +1,2 @@
+- https://github.com/jeremybytes
+- https://discord.com/channels/1127340805741359164/1328019537056104529
